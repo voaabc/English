@@ -1,0 +1,24 @@
+---
+layout: page
+title: About
+permalink: /about/
+icon: heart
+type: page
+---
+
+* content
+{:toc}
+
+## 关于我
+
+
+
+## 联系我
+
+微信公众号
+
+![avatar](https://xcode.show/x/images/weixingongzhonghao.jpg)
+
+
+
+
