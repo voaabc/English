@@ -84,3 +84,42 @@ A build- it- yourself solar still is one of the best ways to obtain drinking wat
 
 This has led to the growth of a leisure industry in the capital' s suburbs which until the late- 1990s were unreachable to ordinary people. 
 > 这 导致 了 首都 郊区 休闲 产业 的 发展， 直到 20 世纪 90 年代 末， 普通人 还 无法 接触 到这 类 产业。
+
+
+
+#### 21-30
+
+<audio id="audio" controls="" preload="none">
+<source id="mp3" src="https://www.conceptenglish.cn/x/GZ100/21-30.mp3">
+</audio>
+
+
+Since it was hot in the studio, it came as a surprise to us to see one of the actors put on a heavy overcoat and start walking along the path. 
+> 由于 演播 室里 很热， 看到 其中 一个 演员 穿上 厚厚 的 大衣 开始 沿着 小路 走， 我们 感到 很 惊讶。
+
+Any training you do to become more effective at public speaking should always focus on the positive aspects of what you already do well. 
+> 为了 在 公共 演讲 中 获得 更好 的 效果 而 做 的 任何 训练 都应 该 集中 在 你 已经 做得 很好 且有 把握 的 方面。
+
+In all, from the time the stem cells are harvested from a donor to the time they can be implanted in the patient, we' ve got 72 hours at most. 
+> 总之， 从 干 细胞 由 捐献者 体内 取出 到 它们 被 植入 到 病人 体内， 我们 最多 有 72 小时 的 时间。
+
+In parts of Africa, though, people and animals looking for honey have a strange and unexpected helper— a little bird called a honey guide. 
+> 然而， 在 非洲 的 一些 地区， 寻找 蜂蜜 的 人和 动物 有一个 奇怪 且 意想不到 的 帮手—— 一种 叫作 蜂蜜 向导 的 小鸟。
+
+On the other hand, a growth mindset believes that no talent is entirely heaven- sent and that effort and learning make everything possible. 
+> 另一方面， 成长 的 思维 模式 认为 没有 哪种 天赋 完全 是 天赐 的， 努力 和 学习 使 一切 成为 可能。
+
+What I' m hoping to accomplish is that my generation and the younger start to reconsider and understand that jazz is not black and white anymore. 
+> 我 希望 我们 这 一代 和 年轻一代 都能 重新 思考， 明白 爵士乐 不再 是 黑人 和 白人 的 专属 了。
+
+When your child grows a bit older and understands the basic function of money, you can start explaining more complex ways of using money. 
+> 当你 的 孩子 长大 一点 并 理解 钱 的 基本功 能 时， 你就 可以 开始 解释 更 复杂 的 花钱 方式 了。
+
+It is important to give your child the space he needs to grow while gently letting him know that you' ll still be there for him when he needs you. 
+> 给 孩子 成长 所需 的 空间， 这一点 很重 要， 同时 慢慢 让他 知道， 在他 需要 你的 时候， 你 仍然 会在 他 身边。
+
+The person leaves it in a public place, hoping that the book will have an adventure, traveling far and wide with each new reader who finds it. 
+> 这个 人 把这 本书 放在 一个 公共场所， 希望 它 能 经历 一场 冒险， 与 找到 它的 每 一位 新 读者 一起 四处 旅行。
+
+Dismissing small talk as unimportant is easy, but we can' t forget that deep relationships wouldn' t even exist if it weren' t for casual conversation. 
+> 把 闲聊 视为 不重 要的 事情 很容易， 但我 们 不能 忘记， 如果不 是因为 闲聊， 深厚 的 关系 甚至 都不 会 存在。
