@@ -123,3 +123,41 @@ The person leaves it in a public place, hoping that the book will have an advent
 
 Dismissing small talk as unimportant is easy, but we can' t forget that deep relationships wouldn' t even exist if it weren' t for casual conversation. 
 > 把 闲聊 视为 不重 要的 事情 很容易， 但我 们 不能 忘记， 如果不 是因为 闲聊， 深厚 的 关系 甚至 都不 会 存在。
+
+
+#### 31-40
+
+<audio id="audio" controls="" preload="none">
+<source id="mp3" src="https://www.conceptenglish.cn/x/GZ100/31-40.mp3">
+</audio>
+
+Only humans, and some intelligent animals like apes and dolphins, have been shown to recognize that the image in the mirror is of themselves. 
+> 经 证明， 只有 人类 以及 类人猿 和 海豚 等 一些 高 智商 动物 能够 认出 镜子 中的 影像 是 自己。
+
+Sure, it' s great to write about a tourist attraction, but you' d better get the local museum hours correct or you could really ruin someone' s vacation. 
+> 当然， 写 一篇 关于 旅游胜地 的 文章 很 不错， 但 你 最好 把 当地 博物馆 开放 的 时间 写 准确， 否则 你 可能 真的 会 毁了 某些 人的 假期。
+
+While small may be beautiful, tall is just plain uncomfortable it seems, particularly when it comes to staying in hotels and eating in restaurants. 
+> 个子矮 小 还可能 是 美丽 的， 而 个子 高大 似乎 就 非常 不方 便了， 特别 是在 旅馆 住宿 和在 餐厅 用餐 的 时候。
+
+When the container is full, you can suck the refreshment out through the tube, and won' t have to break down the still every time you need a drink. 
+> 当 容器 满了， 你 可以 用 管子 将 饮料 吸出 来， 而 不用 在 每次 需要 喝 的 时候 将 蒸馏器 打破。
+
+It starts with looking inside yourself and understanding who you are with respect to the natural world and how you approach the gardening process. 
+> 它 从 正视 你自己 开始， 明白 自己 在 自然界 中的 身份， 以及 你是 如何 了解 园艺 过程 的。
+
+When the world was still populated by hunter- gatherers, small, tightly knit groups developed their own patterns of speech independent of each other. 
+> 当世 界 人口 还 是由 采 猎 者 构成 时， 紧密联系 在一起 的 小团 体形 成了 各自 独立 的 语言 模式。
+
+Bradford sold the building and land to a local development firm, which plans to build a shopping complex on the land where the theater is located. 
+> 布拉 德 福 德 把 那 栋 大楼 以及 土地 卖给 了 当地 的 一家 开发 商， 该 公司 计划 在 剧院 所在地 建 一个 综合 购物中心。
+
+Ma Shwe had crossed the river and got up the bank and was making her way back as fast as she could, roaring all the time, but to her calf it was music. 
+> 马 瑞 已经 过了 河 并 爬 上了 岸， 她 以 最快 的 速度 返回， 嘴里 还 一直 不停 地 吼叫 着， 但是 这叫 声 对 她的 小 象 来说 就是 美妙 的 音乐。
+
+No one can say which brand will work best for you or feel best on your feet, so you have to rely on your experience and on the feel of each pair as you shop. 
+> 没有人 能说 出 哪个 品牌 最 适合 你， 或者 你的 脚 穿 哪 一双鞋 最 舒服， 所以 你得 根据 自己的 经验 和 对 每双 鞋 的 感觉 来 购买。
+
+Computer programmer David Jones earns $ 35, 000 a year designing new computer games, yet he cannot find a bank ready to let him have a credit card. 
+> 电脑 程序员 大卫· 琼 斯 通过 设计 新的 电脑 游戏 一年 可 赚 35 000 美元， 然而 他 仍然 找 不到 愿意 给他 办理 信用卡 的 银行。
+
